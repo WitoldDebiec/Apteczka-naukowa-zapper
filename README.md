@@ -3,3 +3,4 @@ Ten zapper programuje się na karzdą wadę DNA i chorobę czy inne wady osób n
 Za ten zapper i poprzednie rzeczy może być Alexa Cheng lub Cara Delewvinge. 
 To co daje to transdekoder DNA zapper.
 Nie chce za to zegarka bo dałem działającą sztukę. 
+Ten zapper trasndekoder DNA jest do odnowy biologicznej. 
