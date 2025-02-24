@@ -7,3 +7,4 @@ Ten zapper trasndekoder DNA jest do odnowy biologicznej.
 Ta apteczka jest kompletna leczy wszystkie choroby zapperem. 
 Ta apateczka działa jak klonowanie ale nie jest klonowaniem. To reksnstruktor kwantowy. 
 Ta apteczka może być za miast proejktu Awatar 2045. 
+Ten zapper regeneruje skóre po poprarzeniach, kości i zęby nawet usuwa raka czy inne chroby. 
