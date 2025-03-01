@@ -10,3 +10,4 @@ Ta apteczka może być za miast proejktu Awatar 2045.
 Ten zapper regeneruje skóre po poprarzeniach, kości i zęby nawet usuwa raka czy inne chroby. 
 Zapper jest nie inwzyjny. 
 Ten zapper sięga pamięci genetycznej i kasuje złe dane.
+Ta apteczka leczy zespół mordercy i inne wady psychiczne. 
