@@ -11,3 +11,4 @@ Ten zapper regeneruje skóre po poprarzeniach, kości i zęby nawet usuwa raka c
 Zapper jest nie inwzyjny. 
 Ten zapper sięga pamięci genetycznej i kasuje złe dane.
 Ta apteczka leczy zespół mordercy i inne wady psychiczne. 
+Przez Czarnego można mieć tylko żonę czasami bez dziecka i dzieci. Bo promy kosmiczne nie zabiorą tego złomu z ziemi. 
